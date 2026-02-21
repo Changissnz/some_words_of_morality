@@ -42,4 +42,5 @@ And I promise I didn't use an LLM to write these. "Promises..."
 - There are two primary ways to make an impact for the screen. One is to be the front. The front is usually chiseled and carefree of their support system, for they must
   somewhat take their support system for granted in order to exude the confidence and expression necessary to deliver to the audience. The back is where all the cleaning up
   has to take place, such as removing bad puppeteers, eliminating sources of subversion, and keeping a careful eye on potential challengers to the front. The front usually
-  can be replaced, while maintaining the objective. If the back goes out, the objective goes out. 
+  can be replaced, while maintaining the objective. If the back goes out, the objective goes out.
+- The irreversible effectiveness of cryptography rests on how much damage can be done under guises of misconception, misdirection, and misfiring. 
