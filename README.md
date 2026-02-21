@@ -38,4 +38,8 @@ And I promise I didn't use an LLM to write these. "Promises..."
 - Never underestimate the effect of the intangible. In the contemporary period of post-2020, blockchain and artificial intelligence have proven more than their stated
   arbitrary valuations, so much that a few players have seem to make it their duty to perpetually rewrite the number system every other month. Blockchain might just be the
   best precursor for confederacy, just as artificial intelligence the best precursor for deception. Combine the two, under miserly economic policies, and that is the best
-  precursor for legitimized war. 
+  precursor for legitimized war.
+- There are two primary ways to make an impact for the screen. One is to be the front. The front is usually chiseled and carefree of their support system, for they must
+  somewhat take their support system for granted in order to exude the confidence and expression necessary to deliver to the audience. The back is where all the cleaning up
+  has to take place, such as removing bad puppeteers, eliminating sources of subversion, and keeping a careful eye on potential challengers to the front. The front usually
+  can be replaced, while maintaining the objective. If the back goes out, the objective goes out. 
