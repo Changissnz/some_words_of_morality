@@ -17,7 +17,7 @@ And I promise I didn't use an LLM to write these. "Promises..."
   with the commercial job advertisements. And instead of wealth redistribution, something that always seems to come too little too late, the most insane of the most civilized
   seem to think the best correction for the fall down the hole of fabrication is another fall down the hole for war.
 - In the natural setting, where the man and woman are both sober and fully aware of their own self-identities, there is almost always a shyness or restraint between the two
-  at the beginning.And that won't change no matter the influence from staged presentations, such as from showgirls and smut. Now if the man happens to be a closet homosexual
+  at the beginning. And that won't change no matter the influence from staged presentations, such as from showgirls and smut. Now if the man happens to be a closet homosexual
   with a lie to prove, then that man would make a greater effort to make love to the woman, and this is done sometimes with the additional purpose to soil the possible
   relationships of other males to that woman. Such is nature...not entirely in sync of the opposites, always with the loopholes that allow for additional opposites to emerge.
 - 
