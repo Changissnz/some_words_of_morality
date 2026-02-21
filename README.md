@@ -54,4 +54,5 @@ And I promise I didn't use an LLM to write these. "Promises..."
   that as communities die, one of the most frequent get-togethers in Christian settings is the funeral setting.
 - Murder is the necessary course of action to take to deal with an advanced persistent threat. Euphemisms for this act of defense abound, but killing another human being,
   under any circumstances, is truthfully murder. This course of action is exemplified by contemporary states of war, where escalation of pressure and antagonism narrow down the options to the last resort, war, where murder is the objective.
-- For all the wonder that Schrodinger's Cat incites in the scientific world, human politics has resorted to much simpler tactics to deal with the same conceptual problem: ignore the cat, or burn the container where the cat is and isn't in. 
+- For all the wonder that Schrodinger's Cat incites in the scientific world, human politics has resorted to much simpler tactics to deal with the same conceptual problem: ignore the cat, or burn the container where the cat is and isn't in.
+- People tend to strive to be greater in speech and writing than in their character. There are less guarantees in speech and writing. British and Chinese elites, in particular, are known for their fantastic rhetorical prose, which just happens to coincide with their imperial status in history. 
