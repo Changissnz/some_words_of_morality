@@ -27,7 +27,7 @@ And I promise I didn't use an LLM to write these. "Promises..."
   that the other cannot improve themselves past that status of perception, therefore, a judgment against them. Another form of bigotry is that which arises from broken trust.
   In both forms, heavy use of rigid classification systems are the most frequent way of perceiving the social world of human beings.
 - Liberalism is what allows for divergence and improvement through novelty. But the ways that it has always been paid for, vaporware instead of product when the means of
-  production get scattered, the substitution of sustenance with increasingly sick forms of entertainment, and fragmentary debt systems, means the policies are for eras, not
+  production get scattered, the substitution of sustenance with increasingly sick forms of entertainment, and fragmentary debt systems, mean the policies are for eras, not
   for continuity. Even when liberalism goes downhill, opponents of it seldom have the means or skill to immediately improve the dire conditions wrought upon people from the
   fallout. It is not just a theory that many conservative powers merely channel the excess inwards. Barriers are forged, physically and mentally. And those barriers become
   impossible to break without wrongdoing, since the rules must have been rewritten to institutionalize those barriers.
