@@ -53,7 +53,13 @@ And I promise I didn't use an LLM to write these. "Promises..."
   some terribly wrong strategy that failed, the Christian faith would lose as many followers as the followers that believe they have a choice to begin with. It doesn't help
   that as communities die, one of the most frequent get-togethers in Christian settings is the funeral setting.
 - Murder is the necessary course of action to take to deal with an advanced persistent threat. Euphemisms for this act of defense abound, but killing another human being,
-  under any circumstances, is truthfully murder. This course of action is exemplified by contemporary states of war, where escalation of pressure and antagonism narrow down the options to the last resort, war, where murder is the objective.
-- For all the wonder that Schrodinger's Cat incites in the scientific world, human politics has resorted to much simpler tactics to deal with the same conceptual problem: ignore the cat, or burn the container where the cat is and isn't in.
-- People tend to strive to be greater in speech and writing than in their character. There are less guarantees in speech and writing. British and Chinese elites, in particular, are known for their fantastic rhetorical prose, which just happens to coincide with their imperial status in history. The idea of the "noble savage" draws its credibility from arguments against this tendency. 
-- The idea that government is supposed to be civil servitude is ideal, but it cannot be true. When government tries to be the supreme overhead, opponents call it tyranny. When government plays the middle role of being above the commoner and below the merchants and landowners, opponents call it weak and criminal. It is as though government is really nothing but lawyers and armed people. 
+  under any circumstances, is truthfully murder. This course of action is exemplified by contemporary states of war, where escalation of pressure and antagonism narrow down
+  the options to the last resort, war, where murder is the objective.
+- For all the wonder that Schrodinger's Cat incites in the scientific world, human politics has resorted to much simpler tactics to deal with the same conceptual problem:
+  ignore the cat, or burn the container where the cat is and isn't in.
+- People tend to strive to be greater in speech and writing than in their character. There are less guarantees in speech and writing. British and Chinese elites, in particular,
+  are known for their fantastic rhetorical prose, which just happens to coincide with their imperial status in history. The idea of the "noble savage" draws its credibility
+  from arguments against this tendency. The idea that government is supposed to be civil servitude is ideal, but it cannot be true. When government tries to be the supreme
+  overhead, opponents call it tyranny. When government plays the middle role of being above the commoner and below the merchants and landowners, opponents call it weak and
+  criminal. It is as though government is really nothing but lawyers and armed people.
+- If it's their business to know, it's also their business to die for. 
