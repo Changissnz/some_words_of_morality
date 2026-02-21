@@ -20,4 +20,5 @@ And I promise I didn't use an LLM to write these. "Promises..."
   at the beginning. And that won't change no matter the influence from staged presentations, such as from showgirls and smut. Now if the man happens to be a closet homosexual
   with a lie to prove, then that man would make a greater effort to make love to the woman, and this is done sometimes with the additional purpose to soil the possible
   relationships of other males to that woman. Such is nature...not entirely in sync of the opposites, always with the loopholes that allow for additional opposites to emerge.
-- 
+- The madness from experiencing the divide between consumerism and ownership can be easily resolved through boycott, and lived afterwards in a kind of ignorant modesty, as
+  long as recurrent problems from that divide no longer have the power to be recognized.
