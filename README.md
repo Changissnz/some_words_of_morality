@@ -46,4 +46,6 @@ And I promise I didn't use an LLM to write these. "Promises..."
 - The irreversible effectiveness of cryptography rests on how much damage can be done under guises of misconception, misdirection, and misfiring.
 - It is hard to not develop a prejudice of morality against those that took the same route as you, but only for the titles, the titles that they received and you did not.
   The routes must have bred two different kinds of characters. And when the game has been set up with zero-sum stakes, high stakes too, then you must abstain and be a
-  neutral agent if you wish not to be viewed as a kind of antagonist in this world of a game. 
+  neutral agent if you wish not to be viewed as a kind of antagonist in this world of a game.
+- Some uncertainties that normally require investigation, and re-investigation if need be, under these laws of civilization would deter potential investigators if one
+  principle is upheld: there are just as many if not more skeletons that come about from investigations, and these new skeletons are not kept a secret.
