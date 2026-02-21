@@ -53,4 +53,4 @@ And I promise I didn't use an LLM to write these. "Promises..."
   some terribly wrong strategy that failed, the Christian faith would lose as many followers as the followers that believe they have a choice to begin with. It doesn't help
   that as communities die, one of the most frequent get-togethers in Christian settings is the funeral setting.
 - Murder is the necessary course of action to take to deal with an advanced persistent threat. Euphemisms for this act of defense abound, but killing another human being,
-  under any circumstances, is truthfully murder. 
+  under any circumstances, is truthfully murder. This course of action is exemplified by contemporary states of war, where escalation of pressure and antagonism narrow down the options to the last resort of war, where murder is the objective. 
