@@ -22,3 +22,7 @@ And I promise I didn't use an LLM to write these. "Promises..."
   relationships of other males to that woman. Such is nature...not entirely in sync of the opposites, always with the loopholes that allow for additional opposites to emerge.
 - The madness from experiencing the divide between consumerism and ownership can be easily resolved through boycott, and lived afterwards in a kind of ignorant modesty, as
   long as recurrent problems from that divide no longer have the power to be recognized.
+- There are two forms of bigotry that have always proved to be great ingredients for tales of fatalism. One is the bigotry from the need of inferiority. This is a two-sided
+  kind of perception where the bigot may believe the other to be inferior because the other is, in fact, superior, or believe the other to be inferior by some criteria, such
+  that the other cannot improve themselves past that status of perception, therefore, a judgment. Another form of bigotry is that which arises from broken trust. In both
+  forms, heavy use of rigid classification systems are the most frequent way of perceiving the social world of human beings. 
