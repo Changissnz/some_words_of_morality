@@ -31,3 +31,5 @@ And I promise I didn't use an LLM to write these. "Promises..."
   for continuity. Even when liberalism goes downhill, opponents of it seldom have the means or skill to immediately improve the dire conditions wrought upon people from the
   fallout. It is not just a theory that many conservative powers merely channel the excess inwards. Barriers are forged, physically and mentally. And those barriers become
   impossible to break without wrongdoing, since the rules must have been rewritten to institutionalize those barriers.
+- There are some that prefer there to be options, even when every single one of those options rejects them. This is the appreciation of the freedom to know. When the options
+  become narrowed down to a mere one or two, the certainty is more appreciated by those with insecurities to have.
