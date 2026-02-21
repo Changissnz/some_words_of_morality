@@ -24,5 +24,5 @@ And I promise I didn't use an LLM to write these. "Promises..."
   long as recurrent problems from that divide no longer have the power to be recognized.
 - There are two forms of bigotry that have always proved to be great ingredients for tales of fatalism. One is the bigotry from the need of inferiority. This is a two-sided
   kind of perception where the bigot may believe the other to be inferior because the other is, in fact, superior, or believe the other to be inferior by some criteria, such
-  that the other cannot improve themselves past that status of perception, therefore, a judgment. Another form of bigotry is that which arises from broken trust. In both
-  forms, heavy use of rigid classification systems are the most frequent way of perceiving the social world of human beings. 
+  that the other cannot improve themselves past that status of perception, therefore, a judgment against them. Another form of bigotry is that which arises from broken trust.
+  In both forms, heavy use of rigid classification systems are the most frequent way of perceiving the social world of human beings. 
