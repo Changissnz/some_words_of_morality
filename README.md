@@ -43,4 +43,7 @@ And I promise I didn't use an LLM to write these. "Promises..."
   somewhat take their support system for granted in order to exude the confidence and expression necessary to deliver to the audience. The back is where all the cleaning up
   has to take place, such as removing bad puppeteers, eliminating sources of subversion, and keeping a careful eye on potential challengers to the front. The front usually
   can be replaced, while maintaining the objective. If the back goes out, the objective goes out.
-- The irreversible effectiveness of cryptography rests on how much damage can be done under guises of misconception, misdirection, and misfiring. 
+- The irreversible effectiveness of cryptography rests on how much damage can be done under guises of misconception, misdirection, and misfiring.
+- It is hard to not develop a prejudice of morality against those that took the same route as you, but only for the titles, the titles that they received and you did not.
+  The routes must have bred two different kinds of characters. And when the game has been set up with zero-sum stakes, high stakes too, then you must abstain and be a
+  neutral agent if you wish not to be viewed as a kind of antagonist in this world of a game. 
