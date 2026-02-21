@@ -34,4 +34,8 @@ And I promise I didn't use an LLM to write these. "Promises..."
 - There are some that prefer there to be options, even when every single one of those options rejects them. This is the appreciation of the freedom to know. When the options
   become narrowed down to a mere one or two, the certainty is more appreciated by those with insecurities to have.
 - The gravity of a lie is as great as its associated inevitable potential to explode on impact, in the advent where the repercussions and connotations of that lie become too
-  incongruent with what actually is. And what actually was after that impact might also be lied about. 
+  incongruent with what actually is. And what actually was after that impact might also be lied about.
+- Never underestimate the effect of the intangible. In the contemporary period of post-2020, blockchain and artificial intelligence have proven more than their stated
+  arbitrary valuations, so much that a few players have seem to make it their duty to perpetually rewrite the number system every other month. Blockchain might just be the
+  best precursor for confederacy, just as artificial intelligence the best precursor for deception. Combine the two, under miserly economic policies, and that is the best
+  precursor for legitimized war. 
