@@ -25,4 +25,9 @@ And I promise I didn't use an LLM to write these. "Promises..."
 - There are two forms of bigotry that have always proved to be great ingredients for tales of fatalism. One is the bigotry from the need of inferiority. This is a two-sided
   kind of perception where the bigot may believe the other to be inferior because the other is, in fact, superior, or believe the other to be inferior by some criteria, such
   that the other cannot improve themselves past that status of perception, therefore, a judgment against them. Another form of bigotry is that which arises from broken trust.
-  In both forms, heavy use of rigid classification systems are the most frequent way of perceiving the social world of human beings. 
+  In both forms, heavy use of rigid classification systems are the most frequent way of perceiving the social world of human beings.
+- Liberalism is what allows for divergence and improvement through novelty. But the ways that it has always been paid for, vaporware instead of product when the means of
+  production get scattered, the substitution of sustenance with increasingly sick forms of entertainment, and fragmentary debt systems, means the policies are for eras, not
+  for continuity. Even when liberalism goes downhill, opponents of it seldom have the means or skill to immediately improve the dire conditions wrought upon people from the
+  fallout. It is not just a theory that many conservative powers merely channel the excess inwards. Barriers are forged, physically and mentally. And those barriers become
+  impossible to break without wrongdoing, since the rules must have been rewritten to institutionalize those barriers.
