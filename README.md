@@ -49,3 +49,6 @@ And I promise I didn't use an LLM to write these. "Promises..."
   neutral agent if you wish not to be viewed as a kind of antagonist in this world of a game.
 - Some uncertainties that normally require investigation, and re-investigation if need be, under these laws of civilization would deter potential investigators if one
   principle is upheld: there are just as many if not more skeletons that come about from investigations, and these new skeletons are not kept a secret.
+- If Christendom was entirely about being put in the same place, while witnessing Gothic scenes of people despairing over what occurred, due to the heat of the moment, or
+  some terribly wrong strategy that failed, the Christian faith would lose as many followers as the followers that believe they have a choice to begin with. It doesn't help
+  that as communities die, one of the most frequent get-togethers in Christian settings is the funeral setting. 
