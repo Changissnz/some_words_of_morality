@@ -82,3 +82,5 @@ And I promise I didn't use an LLM to write these. "Promises..."
   an apathy in psychological terms. In orthodox terms, nationalism is measured by the degrees of cohesion of potential and existing force. And this orthodoxy is why many Republican-styled
   armies think of themselves as nationalists, when in the wholeness of the numbers of the nation, they are actually a minority with titles that are quite exclusive to other identities able
   to compete with them on fair terms.
+- If you use a calm and clear tone to reason about something, you can make the least profound statement feel quite profound, especially when you add nuanced sentiment to it. And if you
+  use a tone of excitement and positivism, you can usually captivate at least half your audience.
