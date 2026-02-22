@@ -65,4 +65,12 @@ And I promise I didn't use an LLM to write these. "Promises..."
 - If it's their business to know, it's also their business to die for.
 - On any serious matter worth any human effort, the going rate has always been measured in blood and capital. Yet, this going rate has also historically been controlled by
   the elite class of society and their criminal associates, and this class equates to royalty in traditional societies. The implication of this class control is that commoners
-  are expendable because they are a staple of any trade. 
+  are expendable because they are a staple of any trade.
+- The rules of alliances are best understood in terms of connectionism. Connectionism is what paves the way for associations to be drawn to individuals and organizations, and
+  from there, those associations to more associations. Some major tasks of any modern-day consulting firm or intelligence agency boil down to weighing predictions on risk, losses,
+  and gains from all these connections, these connections then renamed as alliance on a good and opportune day.
+- A prime area where allies and enemies are made is in what the individual or organization sells. If what they sell is labor, they should expect the associated harshness of the work
+  environment as well as cultural treatments based on the status of that labor. If what they sell is service, their expectation is that they are not a dime in a dozen, that they
+  are, in fact, fit to be in that position to serve, a notion that lends to the more questionable notion that they are a master of that position to serve, a master of sorts. Alliances
+  always require more labor than service, since labor is much more easily measured and much less subject to the arbitrary biases of the host society, biases that are ripe for exploitation
+  of the jealous or the over-competitive.
