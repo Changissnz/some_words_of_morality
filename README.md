@@ -65,4 +65,4 @@ And I promise I didn't use an LLM to write these. "Promises..."
 - If it's their business to know, it's also their business to die for.
 - On any serious matter worth any human effort, the going rate has always been measured in blood and capital. Yet, this going rate has also historically been controlled by
   the elite class of society and their criminal associates, and this class equates to royalty in traditional societies. The implication of this class control is that commoners
-  are expendable. 
+  are expendable because they are a staple of any trade. 
