@@ -59,9 +59,10 @@ And I promise I didn't use an LLM to write these. "Promises..."
   ignore the cat, or burn the container where the cat is and isn't in.
 - People tend to strive to be greater in speech and writing than in their character. There are less guarantees in speech and writing. British and Chinese elites, in particular,
   are known for their fantastic rhetorical prose, which just happens to coincide with their imperial status in history. The idea of the "noble savage" draws its credibility
-  from arguments against this tendency. The idea that government is supposed to be civil servitude is ideal, but it cannot be true. When government tries to be the supreme
-  overhead, opponents call it tyranny. When government plays the middle role of being above the commoner and below the merchants and landowners, opponents call it weak and
-  criminal. It is as though government is really nothing but lawyers and armed people.
+  from arguments against this tendency.
+- The idea that government is supposed to be civil servitude is ideal, but it cannot be true. When government tries to be the supreme overhead, opponents call it tyranny.
+  When government plays the middle role of being above the commoner and below the merchants and landowners, opponents call it weak and criminal. It is as though government
+  is really nothing but lawyers and armed people.
 - If it's their business to know, it's also their business to die for.
 - On any serious matter worth any human effort, the going rate has always been measured in blood and capital. Yet, this going rate has also historically been controlled by
   the elite class of society and their criminal associates, and this class equates to royalty in traditional societies. The implication of this class control is that commoners
