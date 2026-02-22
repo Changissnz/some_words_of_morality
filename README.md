@@ -79,6 +79,6 @@ And I promise I didn't use an LLM to write these. "Promises..."
   those claims seriously without repercussions to their livelihood. The finger gets pointed to the poor and minorities when business is in order, and to businesses when statism is in
   order.
 - Nationalism would never work in any human society if it was measured up against the kinds of betrayals that occur. Arguably, most betrayals manifest themselves as a lack of pro-activity,
-  an apathy in psychological terms. In orthodox terms, nationalism is measured in the degrees of cohesion of potential and existing force. And this orthodoxy is why many Republican-styled
+  an apathy in psychological terms. In orthodox terms, nationalism is measured by the degrees of cohesion of potential and existing force. And this orthodoxy is why many Republican-styled
   armies think of themselves as nationalists, when in the wholeness of the numbers of the nation, they are actually a minority with titles that are quite exclusive to other identities able
   to compete with them on fair terms.
