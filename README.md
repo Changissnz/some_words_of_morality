@@ -75,3 +75,6 @@ And I promise I didn't use an LLM to write these. "Promises..."
   are, in fact, fit to be in that position to serve, a notion that lends to the more questionable notion that they are a master of that position to serve, a master of sorts. Alliances
   always require more labor than service, since labor is much more easily measured and much less subject to the arbitrary biases of the host society, biases that are ripe for exploitation
   of the jealous or the over-competitive.
+- The biggest traitors of any nation almost always include old experienced elites, usually of the predominant ethnicity, and their wealthy offspring. But no resident of a nation can make
+  those claims seriously without repercussions to their livelihood. The finger gets pointed to the poor and minorities when business is in order, and to businesses when statism is in
+  order. 
