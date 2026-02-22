@@ -84,3 +84,5 @@ And I promise I didn't use an LLM to write these. "Promises..."
   to compete with them on fair terms.
 - If you use a calm and clear tone to reason about something, you can make the least profound statement feel quite profound, especially when you add nuanced sentiment to it. And if you
   use a tone of excitement and positivism, you can usually captivate at least half your audience.
+- It is easier to make a consumer lose their appetite for something than to enable them to be with or serve that something, says the market of money and politics, always considerate enough
+  to sit somewhere on top of a war machine. 
